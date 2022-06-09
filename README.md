@@ -1,0 +1,3 @@
+# JBG!Talk first-Porfolio
+
+Practice...
